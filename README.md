@@ -6,7 +6,7 @@ Atualmente, estou em transição de carreira para a área de Tecnologia da Infor
 
 💡 Objetivo: unir minha experiência em organização, análise e gestão de processos à tecnologia, criando soluções eficientes e escaláveis.## Hi there 👋
 
-English
+
 Hi, I’m Henrique 👋
 
 I’m a professional with solid experience in administrative, financial, and process management, having worked in notary offices, accounting firms, and overseeing multiple restaurant units.
